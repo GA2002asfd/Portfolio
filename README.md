@@ -3,8 +3,7 @@
 Hi! I'm Gabriel Armado
 I play video games and pool for a living.
 I workout for my physical health. 
-I currently work for the City of San Diego
-under the job category of Public Safety
+I currently work for the City of San Diego.
 I run 2 teams 8 ball and 9 ball for pool
 under the American Pool Association (APA)
 pool league. If you have more questions about me 
